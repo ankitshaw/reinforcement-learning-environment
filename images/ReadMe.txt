@@ -93,3 +93,6 @@ Update 3, online on April 24 2010, added 9 icons:
 * Yoshi Flower
 * Yoshi Star
 * Yoshi 
+
+
+<a href="https://flyclipart.com/mario-flag-mario-flag-pixel-art-symbol-lamp-post-tarmac-hd-png-download-1601929">Mario Flag Mario Flag Pixel Art, Symbol, Lamp Post, Tarmac HD PNG Download</a>
